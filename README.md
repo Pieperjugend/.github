@@ -1,1 +1,6 @@
-# .github
+# Pieperjugend.de
+Wir sind eine deutschsprachige Community und haben Spaß auf unsere eigene Art. Es gibt viele Dinge, die wir gemeinsam tun. Sei es, Computerspiele zu spielen, an der großen Tafel der DND/PNP-Abende zu sitzen oder um den Kamin herum einen Shishakopf zu genießen. Bei uns gibt es keine Grenzen für Aktivitäten, die Puste geht so schnell nicht aus! Wir sind ideology-fluid und allen Selbstdarstellungen und Ansichten offen. Wahrhaftig ein bunter Haufen, der aus allen Teilen Deutschlands kommt.
+
+Es war der 05. Januar 2018, als sich zwei Jugendliche in der Schule trafen. Sie harmonierten so gut, dass sie beschlossen, eine Gruppe namens “PieperJugend” zu gründen. Der Name stammt von einem Lehrer dieser Schule. Scherzhaft manifestierte sich ein Bild des Gottkaisers Pieper, der mit ausgefallenen Kleidungsstücken schmunzeln erzeugte und mit seinen Sprüchen politisches Missfallen gegen rechts und links erregte. Der so entstandene Kopfkanon sorgte für diverse fan fictions, die bis heute auf der originalen Steam-Gruppe zu finden sind. Aus kleinen Anfängen wuchs die Gruppe schnell. Bis heute zählen wir unglaubliche 20 Mitglieder und mehr.
+
+Die Gruppe hat sich sehr schnell erweitert und man kann heute mit Sicherheit sagen, dass die Pieperjugend immer größer wird.
